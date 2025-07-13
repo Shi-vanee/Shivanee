@@ -1,2 +1,0 @@
-# Shivanee
-GitHub Profile README
