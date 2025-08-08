@@ -1,4 +1,4 @@
-# 👋 Hey there! I'm Shivanee.
+# 👋 Hey there! I'm Valsha Beewa.
 <br>👩🏻‍💻 A Cybersecurity Student and soon-to-be graduate with a Diploma In Cybersecurity<br>👩🏻‍🎓 Studied Cybersecurity at Polytechnics Mauritius Ltd<br>💻 Love coding, ethical hacking, database systems, and networking challenges<br>🖼️ Editing videos and photos as a creative outlet<br>💭 Currently learning more on coding<br><br><br>
 
 
